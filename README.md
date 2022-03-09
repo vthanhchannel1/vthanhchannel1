@@ -1,7 +1,7 @@
 # VThanh's Profile
 
 
-![theimages](http://cdn.hqth.me/vthanhchannel.png)
+![theavatar]()
 
 **Chào mừng đến với pro5 của tui ☺**
 
